@@ -16,5 +16,6 @@
 - 😃
 - My name is Giovanni Giorgio, but everybody calls me Giorgio
 - Thanks
+- While other places have... ponies or cats... we have... dragons! 😃😃😃
 - [My favorite music](https://www.youtube.com/watch?v=41c9vRZ4mB4)
 - ![バジリスクタイム-バジリスク](https://user-images.githubusercontent.com/69418560/174502738-ec3a7e01-5276-4028-9531-cdfbbf36e0c6.gif)
