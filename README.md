@@ -19,4 +19,4 @@
 - While other places have... ponies or cats... we have... dragons! 😃😃😃
 - [My favorite music](https://www.youtube.com/watch?v=41c9vRZ4mB4)
 - ![バジリスクタイム-バジリスク](https://user-images.githubusercontent.com/69418560/174502738-ec3a7e01-5276-4028-9531-cdfbbf36e0c6.gif)
-- Thank you for earlier!!! I'm Makoto Sato. This is my favorite video. (https://www.youtube.com/watch?v=6Cr_8tvvQ0k)
+- ![image](https://user-images.githubusercontent.com/46553513/174509001-b7608dc8-ba17-4bcd-a0fa-5f05e39d86b6.png)
